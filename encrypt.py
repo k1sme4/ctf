@@ -1,4 +1,4 @@
 import joke 
-#41tuxYvWvdUsEoB2dAt1ibfzPWJHsfYzHqdPcmp7#
+#8UND5eHgeniYT1NHc487YkXbUS72AbFRgYmxffskgKQMQaHfy4rWE5J2UDy#
 Haha, you don't actually think I would give you the code, do you?
 
